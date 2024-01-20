@@ -3,34 +3,37 @@
 ## Introduction to Norway and Iceland
 Norway and Iceland, nestled in the Arctic Circle, are spectacular destinations for witnessing the Northern Lights. Renowned for their unique landscapes, from Norway's deep fjords to Iceland's volcanic terrain, both offer distinct experiences to visitors.
 
-- **Image Placeholder**: _A collage showing Norway's fjords and Iceland's geothermal areas._
 
 ## Optimal Time for Viewing Northern Lights
 The best time to experience the Northern Lights in both Norway and Iceland is during the winter months, typically from mid-September to early April. This period offers long, dark nights ideal for viewing the auroras.
 
 
-## Day-by-Day Itinerary: Norway
-![image](https://github.com/rmete/UIUC/assets/46465233/c38bca06-b31d-4bb2-b888-fb980a635895)
+# Day-by-Day Itinerary: Norway
+![c38bca06-b31d-4bb2-b888-fb980a635895](https://github.com/rmete/travel/assets/46465233/9e0b50f4-2f17-4916-9443-6806e79a1c50)
+
 
 ### Day 1-3: Oslo to Tromsø
 - **Activities**: Explore Oslo's history, then travel to Tromsø for Arctic adventures.
 - **Northern Lights**: Evening viewing in Tromsø.
-![image](https://github.com/rmete/UIUC/assets/46465233/545b6ef3-a632-4930-823a-747eba6e8609)
+![545b6ef3-a632-4930-823a-747eba6e8609](https://github.com/rmete/travel/assets/46465233/33b55dbb-5f8e-4434-ad9c-ec7ef911d05b)
+
 
 
 ### Day 4-6: Lofoten Islands
 - **Activities**: Visit fishing villages, enjoy scenic views.
 - **Northern Lights**: Coastal viewing spots in Lofoten.
-![image](https://github.com/rmete/UIUC/assets/46465233/8fba7f0d-2779-408f-8955-9b65d2f2827e)
+![Uploading 8fba7f0d-2779-408f-8955-9b65d2f2827e.png…]()
+
 
 
 ### Day 7-10: Bergen and the Fjords
 - **Activities**: Discover Bergen, fjord cruises.
 - **Northern Lights**: Rural areas near the fjords.
 ![image](https://github.com/rmete/UIUC/assets/46465233/5ab52c13-21fc-4b8b-8a2f-7fb29a3716d6)
+---
 
 
-## Day-by-Day Itinerary: Iceland
+# Day-by-Day Itinerary: Iceland
 ![image](https://github.com/rmete/UIUC/assets/46465233/20d4871d-449d-468a-97c8-0488fff0ef6d)
 
 ### Day 1-3: Reykjavik and Golden Circle
