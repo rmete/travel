@@ -22,36 +22,42 @@ The best time to experience the Northern Lights in both Norway and Iceland is du
 ### Day 4-6: Lofoten Islands
 - **Activities**: Visit fishing villages, enjoy scenic views.
 - **Northern Lights**: Coastal viewing spots in Lofoten.
-![Uploading 8fba7f0d-2779-408f-8955-9b65d2f2827e.png…]()
+
+![8fba7f0d-2779-408f-8955-9b65d2f2827e](https://github.com/rmete/travel/assets/46465233/58f7839a-b5f1-4bb7-b9fb-19c8982d0470)
 
 
 
 ### Day 7-10: Bergen and the Fjords
 - **Activities**: Discover Bergen, fjord cruises.
 - **Northern Lights**: Rural areas near the fjords.
-![image](https://github.com/rmete/UIUC/assets/46465233/5ab52c13-21fc-4b8b-8a2f-7fb29a3716d6)
+![5ab52c13-21fc-4b8b-8a2f-7fb29a3716d6](https://github.com/rmete/travel/assets/46465233/31a043ae-4ffb-43fa-baaa-d2ad73031f54)
+
 ---
 
 
 # Day-by-Day Itinerary: Iceland
-![image](https://github.com/rmete/UIUC/assets/46465233/20d4871d-449d-468a-97c8-0488fff0ef6d)
+![20d4871d-449d-468a-97c8-0488fff0ef6d](https://github.com/rmete/travel/assets/46465233/52384671-0c5d-49de-97e8-66635599b8e9)
+
 
 ### Day 1-3: Reykjavik and Golden Circle
 - **Activities**: Reykjavik city tour, Golden Circle exploration.
 - **Northern Lights**: Thingvellir National Park.
-![image](https://github.com/rmete/UIUC/assets/46465233/8ceb9533-3bcf-4661-8c2c-7872737fc2bd)
+![8ceb9533-3bcf-4661-8c2c-7872737fc2bd](https://github.com/rmete/travel/assets/46465233/3ed3e5b6-c864-426c-b0bf-7d3d9d92f0bb)
+
 
 
 ### Day 4-6: South Coast to Vatnajökull
 - **Activities**: Waterfalls, black sand beaches, glacier views.
 - **Northern Lights**: Near Vatnajökull.
-![image](https://github.com/rmete/UIUC/assets/46465233/f51da81c-69ae-43b5-82cb-e3578594e3e8)
+![f51da81c-69ae-43b5-82cb-e3578594e3e8](https://github.com/rmete/travel/assets/46465233/0764a1ce-f033-430b-8506-2df1000d219b)
+
 
 
 ### Day 7-10: Akureyri and Westfjords
 - **Activities**: Northern Iceland exploration.
 - **Northern Lights**: Westfjords and remote areas.
-![image](https://github.com/rmete/UIUC/assets/46465233/33aa30f3-2c7d-4978-9548-48433bd9209c)
+![33aa30f3-2c7d-4978-9548-48433bd9209c](https://github.com/rmete/travel/assets/46465233/a9e1a3cb-ec31-4427-af06-621fe900cdcb)
+
 
 
 ## Accommodation Suggestions
