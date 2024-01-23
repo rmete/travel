@@ -82,3 +82,61 @@ Offering a range of options from budget-friendly hostels to luxury hotels, each 
 ## Conclusion
 Both Norway and Iceland promise unforgettable Northern Lights experiences, enriched by their distinct cultural and natural landscapes. Whether you seek Norway's fjord beauty or Iceland's volcanic wonders, both itineraries offer a mesmerizing journey under the Arctic skies.
 based on your preferences and available imagery.
+
+
+
+---
+
+# 10 Days in Iceland (Updated)
+Certainly! Let's add more specific details to your 10-day Iceland itinerary, including tours, exact places to visit, and average accommodation pricing. Prices are approximate and subject to change, so it's always good to check for the most current rates closer to your trip.
+
+### Day 1-2: Reykjavik
+- **Activities**: 
+  - **Day 1**: City Walking Tour (visit landmarks, learn about local history and culture).
+  - **Day 2**: Visit the National Museum (about $15 per person) and Reykjavik Art Museum (around $10 per person).
+- **Dining**: Try Icelandic cuisine at restaurants like Fiskmarkaðurinn (Fish Market) - average meal cost around $30-$50 per person.
+- **Stay**: Mid-range hotels like CenterHotel Midgardur, average $150-$200 per night for a double room.
+
+### Day 3: Golden Circle
+- **Tours**: Guided Golden Circle Tour - includes all major sights, costs about $60-$80 per person.
+- **Sights**: Thingvellir National Park (free), Geysir Geothermal Area (free), Gullfoss waterfall (free), and Kerid Crater ($4 entry fee).
+- **Stay**: Guesthouses or rural hotels, average $100-$150 per night.
+
+### Day 4: South Coast
+- **Sights**: Seljalandsfoss, Skogafoss (free), Reynisfjara Beach, Dyrhólaey (free).
+- **Stay**: Hotels or guesthouses in Vik, average $120-$170 per night.
+
+### Day 5: Vatnajokull National Park
+- **Activities**: Glacier hike ($90-$140 per person) or ice cave tour (around $150 per person).
+- **Sights**: Svartifoss, Skaftafell (park entry is free, parking fee around $7).
+- **Stay**: Nearby accommodation, average $100-$150 per night.
+
+### Day 6: East Fjords
+- **Sights**: Petra's Stone Collection (small donation), Seyðisfjörður village.
+- **Stay**: Local guesthouses, average $90-$130 per night.
+
+### Day 7: Northern Iceland
+- **Sights**: Dettifoss (free), Akureyri Botanical Garden (free), Akureyri Church (free).
+- **Stay**: Hotels in Akureyri, average $120-$170 per night.
+
+### Day 8: Myvatn Area
+- **Activities**: Myvatn Nature Baths ($35-$40 per person).
+- **Sights**: Lake Myvatn (free), Dimmuborgir (free), Námafjall (free).
+- **Whale Watching**: From Húsavík, around $80-$100 per person.
+- **Stay**: Accommodation in Myvatn, average $100-$150 per night.
+
+### Day 9-10: Northern Lights and Relaxation
+- **Northern Lights Tour**: Guided evening tour, around $50-$80 per person.
+- **Day 10**: Flight from Akureyri to Reykjavik - average price $100-$150.
+- **Stay**: Reykjavik hotel, average $150-$200 per night.
+
+### General Notes:
+- **Car Rental**: A 4x4 vehicle is recommended. Prices vary widely but expect around $100-$150 per day.
+- **Food**: Average meal costs in restaurants range from $20 to $50 per person.
+- **Weather Gear**: Rental of specialized weather gear, if needed, can cost about $20-$40 per day.
+
+### Booking Tips:
+- **Book in Advance**: Especially for tours and accommodations in smaller towns.
+- **Check for Package Deals**: Some tours offer discounts when booked together.
+- **Travel Insurance**: Consider getting travel insurance that covers cancellations and medical emergencies.
+
