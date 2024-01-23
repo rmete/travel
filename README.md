@@ -103,7 +103,7 @@ Certainly! Let's add more specific details to your 10-day Iceland itinerary, inc
 - **Stay**: Guesthouses or rural hotels, average $100-$150 per night.
 
 ### Day 4: South Coast
-- **Sights**: Seljalandsfoss, Skogafoss (free), Reynisfjara Beach, Dyrhólaey (free).
+- **Sights**: Seljalandsfoss, Skogafoss Waterfall (free), Reynisfjara Beach, Dyrhólaey (free), Diamond Beach, Glacier Lagoon
 - **Stay**: Hotels or guesthouses in Vik, average $120-$170 per night.
 
 ### Day 5: Vatnajokull National Park
