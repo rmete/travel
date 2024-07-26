@@ -1,4 +1,4 @@
-# 10-Day Norway vs. Iceland Itinerary: A Quest for the Northern Lights
+# 10-Day Norway vs. Iceland Itinerary
 
 ## Introduction to Norway and Iceland
 Norway and Iceland, nestled in the Arctic Circle, are spectacular destinations for witnessing the Northern Lights. Renowned for their unique landscapes, from Norway's deep fjords to Iceland's volcanic terrain, both offer distinct experiences to visitors.
