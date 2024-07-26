@@ -1,5 +1,7 @@
 ### 5-Day Itinerary for Bachelor Party in Alaska
 
+**[Google Sheets Link](https://docs.google.com/spreadsheets/d/12fSSPhheD1u8I6BueAPTO2LM82zDOHnOikGiy-PE6Ww/edit?usp=sharing)**
+
 #### Day 1: Arrival in Anchorage
 - **Morning:**
   - Fly from San Francisco (SFO) to Anchorage, Alaska (ANC).
@@ -114,5 +116,3 @@
   - Requires fishing knowledge.
   - No guide support.
   - Need to rent or buy equipment and navigate on your own.
-
-This itinerary offers a mix of fishing, sightseeing, and experiencing the natural beauty of Alaska, ensuring an adventurous and memorable bachelor party.
